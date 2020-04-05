@@ -63,6 +63,6 @@ Yunus Berat Alkış 9/E 174
 12. Once it boils remove from the stove.
 13. Pour the sauce on the cake and wait for a while.
 14. After you slice the cake you can serve it, enjoy your meal.
-![](hhttps://i.hizliresim.com/ilG5Yc.jpg)
+![](https://i.hizliresim.com/ilG5Yc.jpg)
 ![](https://i.hizliresim.com/ePtF6M.png)
 ![](https://i.hizliresim.com/zquBvU.png)
